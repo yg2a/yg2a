@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @yg2a
+- 👀 I’m interested in data security
+- 🌱 I’m currently learning programming
+- 💞️ I’m looking to collaborate on nothing really
+- 📫 How to reach me: please don't
